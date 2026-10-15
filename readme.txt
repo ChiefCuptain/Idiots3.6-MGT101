@@ -1,1 +1,1 @@
-is that a silksong reference
+is that a hollow knight reference
